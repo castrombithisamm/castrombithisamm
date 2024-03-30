@@ -27,7 +27,7 @@ Sharing insights is a joy of mine. Check out some of my recent blog posts:
 
 ## 📫 Get in Touch
 
-- LinkedIn: [Castro Mbithi](https://www.linkedin.com/in/castro-mbithi/)
+- LinkedIn: [Castro Mbithi](https://www.linkedin.com/in/castro-mbithi-1129b4b8/)
 - Twitter: [@CastroSammy1](https://twitter.com/CastroSammy1/)
 - Personal Website: [castrombithisamm.dev](https://castrombithisamm.dev)
 
